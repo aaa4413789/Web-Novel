@@ -2,7 +2,7 @@
 >以下都是我自己翻译的web小说
 
 <details>
-<h2><summary>请让买下我的遗体[短篇]</summary></h2>
+<summary><title>请让买下我的遗体[短篇]</title></summary>
 <p><strong>类型</strong>：<em>现代情感</em></p>
 <p><b>标签</b>**：**`绝症`  `治愈`  `女性视角`  `感人 `**</p>
 <p><b>阅读</b><a href="https://telegra.ph/%E8%AF%B7%E8%AE%A9%E6%88%91%E4%B9%B0%E4%B8%8B%E4%BD%A0%E7%9A%84%E9%81%97%E4%BD%93-06-14">正文</a></p>
