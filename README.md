@@ -60,7 +60,14 @@
   30. [理论世界2](https://telegra.ph/理论世界2-07-14) 
   31. [理论世界3](https://telegra.ph/理论世界3-07-16) 
   32. [理论世界4](https://telegra.ph/理论世界4-07-18) 
-  32. [毁灭炮1](https://telegra.ph/毁灭炮1-07-19) 
+  33. [毁灭炮1](https://telegra.ph/毁灭炮1-07-19) 
+  34. [毁灭炮2](https://telegra.ph/毁灭炮2R15-07-21) 
+  35. [期望](https://telegra.ph/期望-07-24) 
+  36. [沉沦的灵魂1](https://telegra.ph/沉沦的灵魂1-07-26) 
+  37. [沉沦的灵魂2](https://telegra.ph/沉沦的灵魂2-07-27) 
+  38. [沉沦的灵魂3](https://telegra.ph/沉沦的灵魂3-07-28) 
+  39. [沉沦的灵魂4](https://telegra.ph/沉沦的灵魂4-07-31) 
+  
   
 </details>
 
