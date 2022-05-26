@@ -160,5 +160,4 @@
 >☕[激赏咖啡](https://telegra.ph/Support-me-06-29)
 
 ## 如何联系我
->telegram：@Guan_shu（推荐）  
->邮箱：wakenshawvfshtqg@gmail.com
+>telegram：@Guan_shu(推荐)
