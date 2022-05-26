@@ -113,6 +113,7 @@
   84. [先进战机](https://telegra.ph/先进战机-01-15)
   85. [Log-Holian](https://telegra.ph/Log-Holian-01-19)
   86. [破灭之枝](https://telegra.ph/破灭之枝-01-25)
+  86. [BLACK-SONG](https://telegra.ph/BLACK-SONG%E7%81%AB%E5%B1%9E%E6%80%A7-01-30)
   87. [神话级BLACK-SONG](https://telegra.ph/神话级BLACK-SONG-02-08)
   88. [宣告](https://telegra.ph/宣告-02-12)
   89. [顺势](https://telegra.ph/顺势-02-16)
