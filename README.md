@@ -67,7 +67,7 @@
   37. [沉沦的灵魂2](https://telegra.ph/沉沦的灵魂2-07-27) 
   38. [沉沦的灵魂3](https://telegra.ph/沉沦的灵魂3-07-28) 
   39. [沉沦的灵魂4](https://telegra.ph/沉沦的灵魂4-07-31) 
-  40. [请看，你所独有的、真爱世界](https://telegra.ph/沉沦的灵魂4-07-31) 
+  40. [请看，你所独有的、真爱世界](https://telegra.ph/请看你所独有的真爱世界-08-02)
   41. [自杀许可【KIND_Rondo】](https://telegra.ph/自杀许可KIND-Rondo-08-05) 
   42. [【自杀许可】](https://telegra.ph/自杀许可-08-08) 
   43. [1000万人的拯救计划-R15](https://telegra.ph/1000万人的拯救计划-R15-08-11) 
