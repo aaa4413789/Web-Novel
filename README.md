@@ -23,7 +23,7 @@
 
 **翻译字数(日文)**：76,740
 
-**简介**：*御日阳火，长期暗恋着名为诗都的青梅竹马，却被另一个青梅竹马红叶骏夺走。这是他在失恋后开始受到欢迎，并建立后宫的故事。*
+**简介**：*御日阳火，长期暗恋着名为诗都的青梅竹马，却被另一个青梅竹马，红叶骏横刀夺爱。可是，当他失恋后，却在不知不觉之间开始受到众女欢迎，并建立起了自己的后宫。*
 
 <details>
 <summary>展开阅读</summary>
@@ -141,6 +141,15 @@
   111. [Be-Coooool](https://telegra.ph/Be-Coooool-05-18)
   112. [理所当然的体操](https://telegra.ph/理所当然的体操-05-22)
   113. [现在终于明白,宇宙的中心原来是他](https://telegra.ph/现在终于明白宇宙的中心原来是他-05-26)
+  114. [走在深渊](https://telegra.ph/走在深渊-05-29)
+  115. [暗魂](https://telegra.ph/暗魂-06-02)
+  116. [超进化](https://telegra.ph/超进化-06-06)
+  117. [Engage](https://telegra.ph/Engage-06-10)
+  118. [高速挖掘机](https://telegra.ph/高速挖掘机-06-14)
+  119. [玻璃大炮](https://telegra.ph/玻璃大炮-06-18)
+  120. [焦糖](https://telegra.ph/焦糖-06-22)
+  121. [Canon-Mode](https://telegra.ph/Canon-Mode-06-26)
+  122. [远方](https://telegra.ph/远方-06-30)
 
   
   
