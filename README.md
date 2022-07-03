@@ -171,3 +171,4 @@
 
 ## 如何联系我
 >telegram：@Guan_shu(推荐)
+>邮箱：liu2358259@gmail.com(很少打开)
